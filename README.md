@@ -9,6 +9,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me:
 - Facebook -->  https://www.facebook.com/share/19QaxwR3eX/
 - Instagram --> https://www.instagram.com/__cyberverse?igsi=MTRweXJ3ZWFnbXJiaA==
-- Linkdin -->   www.linkedin.com/in/Muhammaad-Bilal
+- Linkdin -->   www.linkedin.com/in/muhammaad-bilal
 - 😄 Pronouns: he/him
 
