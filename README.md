@@ -10,5 +10,6 @@ Here are some ideas to get you started:
 - Facebook -->  https://www.facebook.com/share/19QaxwR3eX/
 - Instagram --> https://www.instagram.com/__cyberverse?igsi=MTRweXJ3ZWFnbXJiaA==
 - Linkdin -->   www.linkedin.com/in/muhammaad-bilal
+- Discord --> https://discord.gg/Wm0jcZnjE
 - 😄 Pronouns: he/him
 
